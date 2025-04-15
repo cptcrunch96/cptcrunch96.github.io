@@ -6,3 +6,4 @@ What appealed the most to me was the fact that a digital garden is never finishe
 Publishing them on the internet for potential viewers gives me a sort of external impetus to not abandon my projects.
 
 The things I wll talk about here
+genealogy
